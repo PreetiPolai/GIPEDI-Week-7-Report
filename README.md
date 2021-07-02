@@ -24,6 +24,6 @@
 
 ## UPDATE ON THE MINT PLANT
 
-<p align = " justify">Considerable and evident growth has been seen in the mint plant in the past few weeks. The length of the plant has now increased to 7 inches from 3 inches(week 1).</p>
+<p align = " justify">Considerable and evident growth has been seen in the mint plant in the past few weeks. The length of the plant has now increased to 7 inches from 3 inches(week 2).</p>
 
 ![IMG_20210702_061031](https://user-images.githubusercontent.com/71027537/124206555-455b6580-db01-11eb-88d9-15611df3b509.jpg)
